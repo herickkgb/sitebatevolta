@@ -1,0 +1,2 @@
+# sitebatevolta
+politica de privacidade
